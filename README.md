@@ -1,5 +1,5 @@
 <div align="center">
-  <img height="150" src="https://github.com/user-attachments/assets/9a7a8d2c-c26a-4aac-af87-c86dc31b6fd8"/>
+  <img width="1200" height="250" alt="subject-w-paradise-lost-first-contact-starr-mazer-crossover-kickstarter-asthreeworks-game_gif (700×286)" src="https://github.com/user-attachments/assets/6b1e6c09-011e-4216-aa89-6246fb38d816"/>
 </div>
 
 ###
